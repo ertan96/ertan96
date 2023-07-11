@@ -14,7 +14,7 @@ As I am always excited to embrace new challenges and continue my growth journey 
 
 
 ### **Connect with me!**
-<a href="https://www.linkedin.com/in/ernest-tan3/"><img src="https://www.freeiconspng.com/uploads/linkedin-logo-3.png" width="60" /></a>
+<a href="https://www.linkedin.com/in/ernest-tan3/"><img src="https://www.freeiconspng.com/uploads/linkedin-logo-3.png" width="58" /></a>
 <a href ="https://wellfound.com/u/ernest-tan-6"><img src="https://pbs.twimg.com/profile_images/1592590479065075713/JKdDlBeu_400x400.jpg" width="50"/></a>
 
 <br/><br/>
